@@ -1,0 +1,1 @@
+Assets visuels de CICC
